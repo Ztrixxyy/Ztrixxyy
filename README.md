@@ -1,16 +1,17 @@
-## Hi there 👋
+### ***Bem-Vindo ao meu perfil! 🖤***
 
-<!--
-**Ztrixxyy/Ztrixxyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+***Me chamo Beatriz Gardin***
 
-Here are some ideas to get you started:
+![](https://media.tenor.com/irb-QDeyMVcAAAAi/kuromi.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• Tenho 16 anos
+
+• Estou cursando o 2° ano do Ensino Médio
+
+• Utilizo esse espaço para a minha organização e compartilhamento dos meus projetos desenvolvidos
+
+Instagram: @ztrixxy
+
+Email: beatrizgardindesousa@gmail.com
+
+Linkedin: linkedin.com/in/beatriz-gardin-666a95260
